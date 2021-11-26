@@ -1,2 +1,2 @@
-# I-Dont-see-enuogh-movement
+# I-Dont-see-enough-movement
 //Ninja
